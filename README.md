@@ -7,4 +7,5 @@
 -TENHO UM CHEVETTE TUBARÃO 74
 
 -SOU FALSO D 
-![](https://tenor.com/pt-BR/view/nottheanswer-gun-no-wrongquestion-gif-12848940)
+
+![](https://media.giphy.com/media/NmhOwlgMrrx7cYnusZ/giphy.gif?cid=790b761134yrn20rxg3f09agyiqsohzsqpy81nrcm102fnpb&ep=v1_gifs_search&rid=giphy.gif&ct=g)
